@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @DKGraphic
+- 👨‍💻 I'm a budding product designer 
 - 👀 I’m interested in Graphic Design and NFTs
 - 🌱 I’m currently learning NFTs
 - 💞️ I’m looking to collaborate on NFT Project
